@@ -1,0 +1,1 @@
+A Paneer Recipes collection that will help you to decide what to make with a block of paneer. Find 90 Indian Paneer Recipes ranging from breakfast, snacks, sweets and main course. From these extensive list of paneer recipes, choose the recipe that you want to make depending on the availability of ingredients and the time you have.
